@@ -1,4 +1,4 @@
-👋 Hey, I’m @naveensingh
+👋 Hey,
 
 👀 If you are Naveen Singh and interested in this account connect with me [here](mailto:hey@navin.sh)
 <!---
